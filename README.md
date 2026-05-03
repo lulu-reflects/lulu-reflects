@@ -1,5 +1,5 @@
 Words that stay.  
-Moments that linger. 
+Moments that linger.  
 A place for reflection.
 
 ---
